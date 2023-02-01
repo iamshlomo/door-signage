@@ -6,4 +6,6 @@
 
 - I'm trying things out, give me a moment!
 
-find me at *shlomoneken@gmail.com*
+- find me at *shlomoneken@gmail.com*
+
+- Dhairya was here!
